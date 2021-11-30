@@ -1,1 +1,0 @@
-# solg-pag
